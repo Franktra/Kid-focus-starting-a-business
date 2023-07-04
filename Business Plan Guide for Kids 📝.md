@@ -1,4 +1,4 @@
-# Business Plan Guide for Young Entrepreneurs 👦👧🏽
+# Business Plan Guide for Young Entrepreneurs 👦🏿👧🏾👦👧🏽
 
 Creating a business plan is a key step to starting your own business. Here is a simple guide to get you started:
 
