@@ -1,4 +1,4 @@
-# Kid-focus-starting-a-business
+🚀 Kids' Entrepreneurship Project 🚀
 # 🚀 Kids' Entrepreneurship Project 🚀
 
 ## 💡 Introduction
