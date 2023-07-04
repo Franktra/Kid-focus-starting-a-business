@@ -1,4 +1,4 @@
-🚀 Kids' Entrepreneurship Project 🚀
+
 # 🚀 Kids' Entrepreneurship Project 🚀
 
 ## 💡 Introduction
