@@ -2,7 +2,7 @@
 # 🚀 Kids' Entrepreneurship Project 🚀
 
 ## 💡 Introduction
-This project aims to empower children to step into the entrepreneurial world. It guides them to start a business, allowing them to sell items they no longer need or their original artwork, pottery, photography, etc. 
+This project was inspired by my best friend and her wonderful boys who are driven and motivated and ready to be entrepreneurs. This project aims to empower other kids like them, to step into the entrepreneurial world. It guides them to start a business, allowing them to sell items they no longer need or their original artwork, pottery, photography, etc. 
 
 ## 🎯 Why is this important?
 This project helps children:
